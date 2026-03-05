@@ -1,4 +1,4 @@
-![bwah](image.png)
+![](https://files.catbox.moe/7p188p.jpg)
 
 heeyyyy (. ❛ ᴗ ❛.)
 
