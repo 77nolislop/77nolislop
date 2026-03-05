@@ -1,9 +1,20 @@
-hh.heyy....
+heeyyyy :)
 
-you can call me iTrap or Soren ^_^
+many names, but prefered is Barry / Soren
 
-he/him strictly ok
+he/him strictly please
 
-extrovert, interaction is encourage!! also very clingy,, + tend to have hvy mood swings, so just iwcaution sumtimes. also like,, please tell me if i'm upsetting you??.  tthankz
+5teen yrs oldd , 2/21
 
-a.also, if u enjoy may madness 2012, analog horror, asym.... then like, bmf okau?.. <:)
+tons of interests, but the main few areee: may madness 2012, hackers & myths, analog horror, asym games(forsaken, dod, alter ego, etc), evade, dummies vs noobs, the battle bricks, guts and blackpowder, our execution, and moreee!!!
+
+
+
+>
+
+
+extrovert, interaction is encourage!! i lovelovelove cuddling with people, so don't be shy to sit with me. <3 i'm also very clingy + tend to have hvy mood swings, so just iwcaution sumtimes. adding on, please tell me if i'm upsetting you. i am HORRIBLE with social cues, and tend to read moods wrong. tthanks
+
+no specific dni, jst basic + i block freely.
+
+when it comes to shipping interact with caution unless ur a friend. i don't care too much abt it, but still be cautious. obviously, don't approch me if you're shipping weird sstuff (adult x minor, family x family, etc.)
