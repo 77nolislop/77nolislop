@@ -12,7 +12,7 @@ tons of interests, but the main few areee: may madness 2012, hackers & myths, an
 
 
 
-🎐
+![](https://files.catbox.moe/507org.png)
 
 
 extrovert, interaction is encourage!! i lovelovelove cuddling with people, so don't be shy to sit with me. <3 i'm also very clingy + tend to have hvy mood swings, so just iwcaution sumtimes. adding on, please tell me if i'm upsetting you. i am HORRIBLE with social cues, and tend to read moods wrong. tthanks
