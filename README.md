@@ -11,13 +11,13 @@ he/him strictly please
 5teen yrs oldd , 2/21
 
 tons of interests, but the main few areee: may madness 2012, hackers & myths, analog horror, asym games(forsaken, dod, alter ego, etc), evade, dummies vs noobs, the battle bricks, guts and blackpowder, our execution, and moreee!!!
-
-
+　
+　
 <p align="center">
   <img src="https://files.catbox.moe/pdgn8s.png" alt="Barry" width="450">
 </p>
-
-
+　
+　
 <p align="center">
   <img src="https://files.catbox.moe/qp8vyy.png" alt="Middle" width="1000">
 </p>
