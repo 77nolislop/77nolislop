@@ -5,6 +5,11 @@
 ### <p align="center">" Hello, I think I got the attention of that ship over there! "</p>
 
 <p align="center">(. ❛ ᴗ ❛.)</p>
+　
+　
+<p align="center">
+  <img src="https://files.catbox.moe/pdgn8s.png" alt="Barry" width="450">
+</p>
 
 many names, but prefered is Barry / Soren
 
@@ -13,11 +18,6 @@ he/him strictly please
 5teen yrs oldd , 2/21
 
 tons of interests, but the main few areee: may madness 2012, hackers & myths, analog horror, asym games(forsaken, dod, alter ego, etc), evade, dummies vs noobs, the battle bricks, guts and blackpowder, our execution, and moreee!!!
-　
-　
-<p align="center">
-  <img src="https://files.catbox.moe/pdgn8s.png" alt="Barry" width="450">
-</p>
 　
 　
 <p align="center">
