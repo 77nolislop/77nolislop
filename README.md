@@ -2,7 +2,7 @@
   <img src="https://files.catbox.moe/sq17qs.png" alt="Top" width="1000">
 </p>
 
-heeyyyy (. ❛ ᴗ ❛.)
+<p align="center">heeyyyy (. ❛ ᴗ ❛.)</p>
 
 many names, but prefered is Barry / Soren
 
