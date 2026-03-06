@@ -17,7 +17,11 @@
 
 #### <p align="center">5teen yrs , 2/21</p>
 
-#### <p align="center">Main interests: May Madness 2012, Hackers & myths, Analog horror, Asym games(Forsaken, Die of Death, Alter Ego, etc.), Evade, Dummies vs Noobs, The Battle Bricks, Guts and Blackpowder, Our Execution, and more.</p>
+#### <p align="center">Main interests:</p>
+#### <p align="center">May Madness 2012, Hackers & mythh, Analog horror</p>
+#### <p align="center">Asym games(Forsaken, Die of Death, Alter Ego, etc.), Evade</p>
+#### <p align="center">Dummies vs Noobs, The Battle Bricks</p>
+#### <p align="center">Guts and Blackpowder, Our Execution, and more.</p>
 　
 
  
