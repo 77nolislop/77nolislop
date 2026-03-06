@@ -2,7 +2,7 @@
   <img src="https://files.catbox.moe/sq17qs.png" alt="Top" width="1000">
 </p>
 
-### <p align="center">" Hello &nbsp;&nbsp;,&nbsp;&nbsp;&nbsp;I think I got the attention of that ship over there! "</p>
+### <p align="center">" Hello ,&nbsp;&nbsp;&nbsp;I &nbsp;think &nbsp;I &nbsp;got &nbsp;the &nbsp;attention &nbsp;of &nbsp;that &nbsp;ship &nbsp;over &nbsp;there ! "</p>
 
 #### <p align="center">(. ❛ ᴗ ❛.)</p>
 　
