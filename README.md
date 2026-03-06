@@ -11,11 +11,11 @@
   <img src="https://files.catbox.moe/pdgn8s.png" alt="Barry" width="450">
 </p>
 
-#### <p align="center">Barry &nbsp;/ &nbsp;Soren</p>
+#### <p align="center">Barry &nbsp;&nbsp;/ &nbsp;&nbsp;Soren</p>
 
-#### <p align="center">He &nbsp;. &nbsp;Him &nbsp;&nbsp;&nbsp;&nbsp;[Strictly]</p>
+#### <p align="center">He &nbsp;&nbsp;. &nbsp;&nbsp;Him &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Strictly]</p>
 
-#### <p align="center">5teen yrs &nbsp;, &nbsp;2/21</p>
+#### <p align="center">5teen yrs &nbsp;&nbsp;, &nbsp;&nbsp;2/21</p>
 
 #### <p align="center">Main interests:</p>
 #### <p align="center">May Madness 2012, Hackers & myths, Analog horror</p>
