@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://files.catbox.moe/sq17qs.png" alt="Barry" width="1000">
+  <img src="https://files.catbox.moe/sq17qs.png" alt="Top" width="1000">
 </p>
 
 heeyyyy (. ❛ ᴗ ❛.)
@@ -28,4 +28,6 @@ no specific dni, jst basic + i block freely.
 
 when it comes to shipping interact with caution unless ur a friend. i don't care too much abt it, but still be cautious. obviously, don't approch me if you're shipping weird sstuff (adult x minor, family x family, etc.)
 
-![](https://files.catbox.moe/y25gpp.png)
+<p align="center">
+  <img src="https://files.catbox.moe/pz461g.png" alt="Bottom" width="1000">
+</p>
