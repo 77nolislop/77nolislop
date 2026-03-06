@@ -11,13 +11,13 @@
   <img src="https://files.catbox.moe/pdgn8s.png" alt="Barry" width="450">
 </p>
 
-many names, but prefered is Barry / Soren
+<p align="center">Barry / Soren</p>
 
-he/him strictly please
+<p align="center">He . Him [Strictly]</p>
 
-5teen yrs oldd , 2/21
+5teen yrs , 2/21
 
-tons of interests, but the main few areee: may madness 2012, hackers & myths, analog horror, asym games(forsaken, dod, alter ego, etc), evade, dummies vs noobs, the battle bricks, guts and blackpowder, our execution, and moreee!!!
+Tons of interests, but the main few are: May Madness 2012, Hackers & myths, Analog horror, Asym games(Forsaken, Die of Death, Alter Ego, etc.), Evade, Dummies vs Noobs, The Battle Bricks, Guts and Blackpowder, Our Execution, and more.
 　
 
  
