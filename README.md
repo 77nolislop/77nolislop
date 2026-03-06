@@ -11,7 +11,7 @@ he/him strictly please
 tons of interests, but the main few areee: may madness 2012, hackers & myths, analog horror, asym games(forsaken, dod, alter ego, etc), evade, dummies vs noobs, the battle bricks, guts and blackpowder, our execution, and moreee!!!
 
 
--> ![](https://files.catbox.moe/pdgn8s.png) <-
+![](https://files.catbox.moe/21nrxj.png)
 
 
 ![](https://files.catbox.moe/507org.png)
