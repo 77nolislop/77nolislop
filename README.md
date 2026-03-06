@@ -12,7 +12,7 @@ tons of interests, but the main few areee: may madness 2012, hackers & myths, an
 
 
 <p align="center">
-  <img src="https://files.catbox.moe/pdgn8s.png" alt="Barry" width="300">
+  <img src="https://files.catbox.moe/pdgn8s.png" alt="Barry" width="400">
 </p>
 
 
