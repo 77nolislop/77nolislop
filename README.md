@@ -4,7 +4,7 @@
 
 <p align="center">### heeyyyy (. ❛ ᴗ ❛.)</p>
 
-many names, but prefered is Barry / Soren
+   many names, but prefered is Barry / Soren
 
 he/him strictly please
 
