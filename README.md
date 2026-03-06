@@ -1,4 +1,6 @@
-![](https://files.catbox.moe/7p188p.jpg)
+<p align="center">
+  <img src="https://files.catbox.moe/pdgn8s.png" alt="Barry" width="450">
+</p>
 
 heeyyyy (. ❛ ᴗ ❛.)
 
