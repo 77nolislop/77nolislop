@@ -31,11 +31,14 @@
 
 
 
-extrovert, interaction is encourage!! i lovelovelove cuddling with people, so don't be shy to sit with me. <3 i'm also very clingy + tend to have hvy mood swings, so just iwcaution sumtimes. adding on, please tell me if i'm upsetting you. i am HORRIBLE with social cues, and tend to read moods wrong. tthanks
+Extrovert, interaction is encourage. I love cuddling with people, so don't be shy to sit with me.
+Very clingy + tend to have heavy mood swings, so just interact with caution sometimes.
+Adding on, please tell me if I'm upsetting you. I am horrible with social cues, and tend to read moods wrong.
 
-no specific dni, jst basic + i block freely.
+No specific dni , I block freely.
 
-when it comes to shipping interact with caution unless ur a friend. i don't care too much abt it, but still be cautious. obviously, don't approch me if you're shipping weird sstuff (adult x minor, family x family, etc.)
+When it comes to shipping interact with caution unless you're a friend. I don't mind it, but still be cautious.
+Obviously, don't approch me if you're shipping weird stuff. (Adult x minor, family x family, etc.)
 
 <p align="center">
   <img src="https://files.catbox.moe/pz461g.png" alt="Bottom" width="1000">
