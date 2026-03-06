@@ -31,7 +31,7 @@
   <img src="https://files.catbox.moe/qp8vyy.png" alt="Middle" width="1000">
 </p>
 
-
+&nbsp;
 
 <p align="center">Extrovert, interaction is encourage. I love cuddling with people, so don't be shy to sit with me.</p>
 <p align="center">Very clingy + tend to have heavy mood swings, so just interact with caution sometimes.</p>
