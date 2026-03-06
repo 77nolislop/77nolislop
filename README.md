@@ -4,7 +4,7 @@
 
 ### <p align="center">" &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Hello ,&nbsp;&nbsp;&nbsp;I &nbsp;think &nbsp;I &nbsp;got &nbsp;the &nbsp;attention &nbsp;of &nbsp;that &nbsp;ship &nbsp;over &nbsp;there ! &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;"</p>
 
-#### <p align="center">(. ❛ ᴗ ❛.)</p>
+#### <p align="center">(ŏ言ŏ ;)</p>
 　
 　
 <p align="center">
