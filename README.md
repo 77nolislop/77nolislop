@@ -18,7 +18,9 @@ tons of interests, but the main few areee: may madness 2012, hackers & myths, an
 </p>
 
 
-![](https://files.catbox.moe/507org.png)
+<p align="center">
+  <img src="https://files.catbox.moe/qp8vyy.png" alt="Middle" width="1000">
+</p>
 
 
 
