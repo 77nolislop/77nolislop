@@ -15,7 +15,7 @@
 
 <p align="center">He . Him [Strictly]</p>
 
-5teen yrs , 2/21
+<p align="center">5teen yrs , 2/21</p>
 
 Tons of interests, but the main few are: May Madness 2012, Hackers & myths, Analog horror, Asym games(Forsaken, Die of Death, Alter Ego, etc.), Evade, Dummies vs Noobs, The Battle Bricks, Guts and Blackpowder, Our Execution, and more.
 　
