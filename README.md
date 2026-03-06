@@ -25,7 +25,7 @@
 <p align="center">Dummies vs Noobs, The Battle Bricks</p>
 <p align="center">Guts and Blackpowder, Our Execution, and more...</p>
 　
-
+&nbsp;
  
 <p align="center">
   <img src="https://files.catbox.moe/qp8vyy.png" alt="Middle" width="1000">
