@@ -37,7 +37,11 @@
 <p align="center">Very clingy + tend to have heavy mood swings, so just interact with caution sometimes.</p>
 <p align="center">Adding on, please tell me if I'm upsetting you. I am horrible with social cues, and tend to read moods wrong.</p>
 
+&nbsp;
+
 <p align="center">No specific dni , I block freely.</p>
+
+&nbsp;
 
 <p align="center">When it comes to shipping interact with caution unless you're a friend. I don't mind it, but still be cautious.</p>
 <p align="center">Obviously, don't approch me if you're shipping weird stuff. (Adult x minor, family x family, etc.)</p>
