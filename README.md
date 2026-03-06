@@ -2,7 +2,9 @@
   <img src="https://files.catbox.moe/sq17qs.png" alt="Top" width="1000">
 </p>
 
-<p align="center">"  Hello, I think I got the attention of that ship over there! " (. ❛ ᴗ ❛.)</p>
+<p align="center">" Hello, I think I got the attention of that ship over there! "</p>
+
+<p align="center">(. ❛ ᴗ ❛.)</p>
 
 many names, but prefered is Barry / Soren
 
