@@ -11,7 +11,7 @@
   <img src="https://files.catbox.moe/pdgn8s.png" alt="Barry" width="450">
 </p>
 
-<p align="center">Barry &nbsp;&nbsp;/ &nbsp;&nbsp;Soren</p>
+<p align="center">Jacob &nbsp;&nbsp;/ &nbsp;&nbsp;Soren</p>
 
 <p align="center">He &nbsp;&nbsp;. &nbsp;&nbsp;Him &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Strictly]</p>
 
