@@ -11,7 +11,7 @@
   <img src="https://files.catbox.moe/pdgn8s.png" alt="Barry" width="450">
 </p>
 
-<p align="center">Jacob &nbsp;&nbsp;/ &nbsp;&nbsp;Soren</p>
+<p align="center">Sweetart &nbsp;&nbsp;/ &nbsp;&nbsp;Soren</p>
 
 <p align="center">He &nbsp;&nbsp;. &nbsp;&nbsp;Him &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Strictly]</p>
 
@@ -33,17 +33,17 @@
 
 &nbsp;
 
-<p align="center">Extrovert, interaction is encourage. I love cuddling with people, so don't be shy to sit with me.</p>
+<p align="center">Extrovert, interaction is encourage. I love cuddling with people, so don't be shy to sit with me!</p>
 <p align="center">Very clingy + tend to have heavy mood swings, so just interact with caution sometimes.</p>
-<p align="center">Adding on, please tell me if I'm upsetting you. I am horrible with social cues, and tend to read moods wrong.</p>
+<p align="center">Adding on, please tell me if I'm upsetting you!! I am horrible with social cues, and tend to read moods wrong...</p>
 
 &nbsp;
 
-<p align="center">No specific dni , I block freely.</p>
+<p align="center">Please please please check Strawpage!!!</p>
 
 &nbsp;
 
-<p align="center">When it comes to shipping interact with caution unless you're a friend. I don't mind it, but still be cautious.</p>
+<p align="center">When it comes to shipping interact with caution unless you're a friend. I don't mind it, but still be cautious!</p>
 <p align="center">Obviously, don't approch me if you're shipping weird stuff. (Adult x minor, family x family, etc.)</p>
 
 <p align="center">
